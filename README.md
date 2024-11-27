@@ -45,14 +45,12 @@ AIfluencers Review – Full OTOs Links + Bundle Coupon Code
 	<li><strong>STEP #3: Monetize and grow</strong></li>
 </ul>
 <p>Use your influencer to earn through sponsorships, affiliate promotions, or driving traffic to your business. Track their performance and optimize your strategy for even better results.</p>
-<p><iframe title="AIfluencers Walkthrough" src="https://player.vimeo.com/video/1031563539?dnt=1&amp;app_id=122963" width="678" height="382" frameborder="0"></iframe></p>
 <p>AIfluencers is a powerful and flexible tool for anyone looking to elevate their social media marketing strategy.</p>
 <p>It’s especially useful for businesses and influencers who want to scale their marketing efforts, generate content quickly, and create unique, AI-powered digital personas.</p>
 <p>While there is a bit of a learning curve, the platform’s features—like content creation, multi-language support, and monetization options—offer tremendous value.</p>
 <p>If you’re a small business, influencer, or agency looking to expand your social media presence without breaking the bank, I highly recommend giving AIfluencers a try.</p>
 <p>It’s definitely one of the most versatile AI marketing tools I’ve come across!</p>
 <h2 class="review-box-header"><span id="AIFLUENCERS_OVERVIEW" class="ez-toc-section"></span><span style="color: #008080;"><strong>AIFLUENCERS OVERVIEW</strong></span></h2>
-<p><iframe title="AIfluencers - Create Social Media Influencers Using AI" src="https://www.youtube.com/embed/TPl2CurvIwo?feature=oembed" width="678" height="381" frameborder="0" allowfullscreen="allowfullscreen"></iframe></p>
 <table style="border-collapse: collapse; width: 100%; height: 312px;">
 <tbody>
 <tr style="height: 24px;">
